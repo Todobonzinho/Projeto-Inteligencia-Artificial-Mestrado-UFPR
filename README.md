@@ -1,0 +1,1 @@
+# Projeto-Inteligencia-Artificial-Mestrado-UFPR
